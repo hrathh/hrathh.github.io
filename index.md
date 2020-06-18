@@ -11,3 +11,5 @@ Die Maulende Myrte ist der Geist, eines plumpen, pummeligen Mädchens mit pickli
 > Fette Myrte! Hässliche Myrte! Elende, maulende, trübselige Myrte!«"
 > HP 2, S. 141, "Die Todestagsfeier"
 
+<img src="https://www.hp-fc.de/infos/figuren/img/die_maulende_myrte.jpg"/>
+
