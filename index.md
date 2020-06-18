@@ -6,3 +6,8 @@ Die Maulende Myrte ist der Geist, eines plumpen, pummeligen Mädchens mit pickli
 * tot
 * jammert viel
 * depressiv
+
+> "»Meint ihr, ich weiß nicht, wie mich die Leute hinter meinem Rücken nennen?
+> Fette Myrte! Hässliche Myrte! Elende, maulende, trübselige Myrte!«"
+> HP 2, S. 141, "Die Todestagsfeier"
+
